@@ -1,3 +1,4 @@
+![](https://c.tenor.com/dIAL40DF1woAAAAC/dio-brando-jojos-bizarre-adventure.gif)<br>
 # ↓ About Me ↓ 
 ## ⇋ aka ᴀɴʏ³³³ <br><br>⌈ LLM Expert, Digital Processes & Automisation<br>⊢ n8n<br>⊢ VAPI<br>⊢ make.com<br>⊢ Powerpages<br>⊢ Microsoft CRM/365<br>⊢ Prompt Engineering<br><br>⊧ Database Expansion Loading... ⊷ <br><br><br>
 
