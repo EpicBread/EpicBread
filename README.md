@@ -1,6 +1,7 @@
 ![](https://media1.tenor.com/m/AyJZhFzUwZwAAAAC/dio-brando-jo-jos-bizarre-adventure.gif)<br>
 # ↓ About Me ↓ 
 ## ⇋ aka ᴀɴʏ³³³ <br><br>⌈ LLM Expert, Digital Processes & Automisation<br>⊢ n8n<br>⊢ VAPI<br>⊢ make.com<br>⊢ Powerpages<br>⊢ Microsoft CRM/365<br>⊢ Prompt Engineering<br><br>⊧ Database Expansion Loading... ⊷ <br><br><br>
+![](https://media.tenor.com/7IKpScathW0AAAAC/dio-the-world.gif)
 
 
 # ⚡ Tech Stack: ⚡
